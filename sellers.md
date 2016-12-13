@@ -54,6 +54,21 @@
 
 [Spirit Up Art](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=AQIBFHYQIIDM6&merchant=AQIBFHYQIIDM6&redirect=true)
 
+[ArtWallDirect](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A1W62DECF5AW6V&merchant=A1W62DECF5AW6V&redirect=true)
+
+[LAQUAN PRATT](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A2JZBK0R4WMRMO&merchant=A2JZBK0R4WMRMO&redirect=true)
+
+[DecorArts](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A1V2NN6ABSWVL8&merchant=A1V2NN6ABSWVL8&redirect=true)
+
+[Muzagroo Art ](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A2RQIRF99YVI35&merchant=A2RQIRF99YVI35&redirect=true)
+
+[So Crazy Art](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A2LCK2SLY0G3RF&merchant=A2LCK2SLY0G3RF&redirect=true)
+
+[Great Big Canvas](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A2V1Q7AD98957J&merchant=A2V1Q7AD98957J&redirect=true)
+
+[TOPHOMEGLOBAL INC](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A31NGGK5OQEL99&merchant=A31NGGK5OQEL99&redirect=true)
+
+
 
 
 
