@@ -50,6 +50,9 @@
 
 [TOP of ART](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A1O618GGDEPQV1&merchant=A1O618GGDEPQV1&redirect=true)
 
+[Wieco Art](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A3A54IBL63VXFN&merchant=A3A54IBL63VXFN&redirect=true)
+
+[Spirit Up Art](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=AQIBFHYQIIDM6&merchant=AQIBFHYQIIDM6&redirect=true)
 
 
 
