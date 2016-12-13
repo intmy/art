@@ -8,6 +8,7 @@
 
 [Alonline Art Studio](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A1UJJOMQNAZR4B&merchant=A1UJJOMQNAZR4B&redirect=true)
 
+[Canvas Art USA](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A5I5QRSOZHX4G&merchant=A5I5QRSOZHX4G&redirect=true)
 
 
 
