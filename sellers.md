@@ -84,4 +84,9 @@
 
 [PosterEnvy](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A1LVLMGHKTEHUM&merchant=A1LVLMGHKTEHUM&redirect=true)
 
+[Piy Painting](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A3R0JT4NKEIJVX&merchant=A3R0JT4NKEIJVX&redirect=true)
+
+[Great Art Now](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A36ED6KJW7CGR2&merchant=A36ED6KJW7CGR2&redirect=true)
+
+[Bluelan](https://www.amazon.com/s?marketplaceID=ATVPDKIKX0DER&me=A36K1O3DIJPVM7&merchant=A36K1O3DIJPVM7&redirect=true)
 
